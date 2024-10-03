@@ -6,11 +6,11 @@
  <p align="center"
 
 
-![divider](https://64.media.tumblr.com/2cdd27c9daae46efa6d06e4cbb3f7f37/dbd95ce5db1a424a-1b/s540x810/202fff4738e2a0a51e009ca9dde569d5aa6ed72a.pnj)
+![1000000836](https://github.com/user-attachments/assets/7fe84c76-9d3a-41ed-b937-d0f0f54209e2)
 
  <p align="center"
 
-![tumblr_98d9de3e8c5d5f3bf0d2593893b63c2b_5d21685c_2048](https://github.com/user-attachments/assets/4856e156-6858-4168-8b5a-ce35b467f11f)
+![1000000833](https://github.com/user-attachments/assets/be163f7b-c16a-478a-a04a-bf4d8e3075a5)
 
  <p align="center"
   
@@ -23,7 +23,7 @@ thank you isa for being a awesome friend towards me im glad to have helped you u
  <p align="center"
 
 
-![divider](https://64.media.tumblr.com/27ae8cf3cbe5f712597f8ab73be5f4d6/dbd95ce5db1a424a-9e/s540x810/0845bff8a74ba3bf8eaee07f81311239a732b4cc.pnj) 
+![1000000836](https://github.com/user-attachments/assets/b3057ef9-dde9-47be-ba8b-1a92fdb79b70)
 
 
 
