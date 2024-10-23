@@ -10,7 +10,7 @@
 
  <p align="center"
   
-‎I use he/him only, no i wont get offended if you use the wrong prns i will just correct you. ‎ ‎ ‎ ‎ ‎ ‎‎In words, yes im free and open for talks or c+h, but please whisper first so i can know im being inted w <3 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎im usually on my island, gi area, or just running around , or just sitting w friends idk man i change  ‎ ‎ ‎ ‎ ‎ ‎ ‎ please check out my rentry for infomation about myself and sign/draw on my straw!  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎also do not take inpso nor copy me i do not like that one bit
+‎I use he/him only, no i wont get offended if you use the wrong prns i will just correct you. In words, yes im free and open for talks or c+h, but please whisper first so i can know im being inted w <3 ‎im usually on my island, gi area, or just running around , or just sitting w friends idk man i change places , please check out my rentry for infomation about myself and sign/draw on my straw! also do not take inpso nor copy me i do not like that one bit stop copying me thanks <3
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
