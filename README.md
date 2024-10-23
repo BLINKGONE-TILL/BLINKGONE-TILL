@@ -1,7 +1,8 @@
  <p align="center"
 
 
-" 𝙏𝙝𝙚 𝙢𝙤𝙤𝙣 𝙬𝙞𝙡𝙡 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙚 𝙄 𝙡𝙤𝙫𝙚𝙙 𝙮𝙤𝙪 𝙡𝙞𝙠𝙚 𝙩𝙝𝙚 𝙨𝙪𝙣 "
+" There's no one else I'd rather fall in love with
+And that is my best friend in the world "
 
 
  <p align="center"
