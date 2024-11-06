@@ -16,8 +16,7 @@ And that is my best friend in the world "
 
  <p align="center"
 
-![1000002915](https://github.com/user-attachments/assets/1f68d13b-2bba-4d01-a11f-c7f7b62b3688)
-
+![1000002914](https://github.com/user-attachments/assets/6ce9fb2f-b613-4c90-b4de-34b9be7eee81)
 
 
 
