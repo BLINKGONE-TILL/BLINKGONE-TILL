@@ -4,7 +4,7 @@
 
  <p align="center"
 
-![1000006624](https://github.com/user-attachments/assets/4f012b21-e7b3-4101-b830-e9ba4e6ce3e7)
+![1000006626](https://github.com/user-attachments/assets/db7697e7-0e67-4c49-9c22-99051a94c41b)
  <p align="center"
   
 ‎wip..‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
