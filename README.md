@@ -1,10 +1,11 @@
  <p align="center"
 
-" Forever dreaming inside a trapped nightmare."
+" Forever dreaming inside a nightmare."
 
  <p align="center"
 
-WIP AGAIN AHAHSBS
+![1000006832](https://github.com/user-attachments/assets/0b994649-40d0-4c96-abb4-515ae92ffaa2)
+
  <p align="center"
   
 
@@ -12,7 +13,7 @@ WIP AGAIN AHAHSBS
 ‎ ‎ ‎ ‎ ‎ ‎ 
  <p align="center"
 
-" These nightmares haunt me forever and wont stop."
+" These nightmares are so vivid."
 
 
 
